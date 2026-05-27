@@ -1,16 +1,30 @@
-## Hi there 👋
+<img src="https://files.catbox.moe/eztvmu.png" align="right" width="25%">
 
-<!--
-**odyduo/odyduo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<br>
+ ⠀
+ ⠀
+<br>
+     ⠀
+<div  align="right">
+Rottyn ノ Odyssey ノ ParrotX2 ⠀★ ⠀tkn do not flirt with
+</div>
+<div  align="right">
+nineteen ⠀intersex boygirl ⠀gaybian ☆ zombie computer
+</div>
+<div  align="right">
+prob off tab ⠀dont cuddle ⠀oti but im kinda awkward sos
+</div>
+ ⠀
+  ⠀
+<div  align="right">
+i like uu ⸝⸝ lssmp ⸝⸝ glass animals ⸝⸝ colorcrew
+</div>
+<div  align="right">
+cuphead ⸝⸝ fnaf ⸝⸝ parkour/pvp civ ⸝⸝ bojack horseman
+</div>
+<div  align="right">
+cold ones ⸝⸝ tf2 ⸝⸝ bioshock ⸝⸝ fallout ⸝⸝ tomb raider
+</div>
+<div  align="right">
+&& so much more , feel free to ask and int !!
+</div>
